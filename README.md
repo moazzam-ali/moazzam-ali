@@ -1,4 +1,4 @@
-# 💫 About Me:
+# Moazzam Ali
 Founder Devtrox | Front End Engineer 
 
 
